@@ -4,4 +4,4 @@
 sadsadsadasdsadsadasdasdsadsadfsdfdfgdfgfdghfhfgdbdfgsdfgdfgdfgdfgdf
 
 
-dfsfdssdfsdfdsfsdfsdfsdfsdfsdfsdfsdfsd
+Технология разработки программного обеспечени
