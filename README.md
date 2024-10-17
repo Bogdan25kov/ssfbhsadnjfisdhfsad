@@ -2,3 +2,6 @@
 
 
 sadsadsadasdsadsadasdasdsadsadfsdfdfgdfgfdghfhfgdbdfgsdfgdfgdfgdfgdf
+
+
+Технология разработки программного обеспечени
